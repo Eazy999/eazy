@@ -1,1 +1,2 @@
 Ya im eazy who is trying to learn about github and that programme.
+whatchu wanna know bout me 
